@@ -4,8 +4,8 @@
 
 ### Relleno
 
-- 1/4 de taza de maicena.
-- 2/3 de taza de azúcar.
+- 1/4 de taza de maicena. 
+- 2/3 de taza de azúcar.1
 - Una pizca de sal.
 - 2 tazas de leche entera.
 - 1 taza de crema para batir.
